@@ -1,4 +1,6 @@
-# Georgia Pitangueira
+# SOBRE MIM
+
+▶️ Geórgia Pitangueira
 
 ✨ Hello, world! ✨
 
